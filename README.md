@@ -1,21 +1,50 @@
-<div align="center">
-<details>
-  <summary>info</summary>
-  syrus / mapice / any nicknames idc. mostly afk/offtb best use w2i to int w me. im targeting someone who has c+h in their name tho..hehehe watxch out....... i have very inc=onsitsnet style i change as i want!!! i block freely so dont complain plspls. fffeeel free to int w me......... unless i have dniuid in m y name;/
-</details>
-</div>
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&size=28&duration=2000&pause=900&color=C3645F&center=true&vCenter=true&width=600&lines=you+wont+be+missed%2C;im+glad+to+see+you" />
+</p>
 
-<div align="center">
-<img src="https://github.com/user-attachments/assets/24689662-caf6-4a08-811f-a467376d37a7" width="300" height="328">
-</div>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/03195ac5-6e90-430e-9b97-c7757840b920" width="1000">
+</p>
 
-***
 
-<div align="right">
-<details>
-<summary>dni/iwc</summary>
-problmatic big dni please, furries iwc, misogynsis, ableist, racist, homophobic big dni, sexist, pedophilia,queerphobic, playing victim, genshin fandom dniuf. boboiboy fandom big dni, bb dni, etc.
-</details>
-</div>
+<table align="center">
+  <tr>
+    <td align="center" width="50%">
+      <img src="https://github.com/user-attachments/assets/a1c27dd1-8f49-4d4e-a904-7c292a18bdb9" width="200">
+      <br><br>
+      <details>
+        <summary>
+          <b><font color="#793061">ᑲᥡі</font></b>
+        </summary>
+        <br>
+        <font color="#DE9E70">
+          18teen ︵⠀ entj <br>
+          he / him · them - nonbinary <br>
+          aro ︵⠀ace <br>
+          i dont allow inspo/copy <br>
+          may be rude somtimes
+          for mor info <a href="https://rentry.co/mapiccmukbang">rentry</a>
+        </font>
+      </details>
+    </td>
+    <td align="center" width="50%">
+      <img src="https://github.com/user-attachments/assets/03339903-926c-4808-9d2c-0d79b61597a5" width="200">
+      <br><br>
+      <details>
+        <summary>
+          <b><font color="#986E7A">ժղì</font></b>
+        </summary>
+        <br>
+        <font color="#C75D4E">
+          basic dni criteria ✦ <br>
+          furries iwec !! <br>
+          problematic, bb big dni ✦
+        </font>
+      </details>
+    </td>
+  </tr>
+</table>
 
-[rentry](https://rentry.co/mapiccmukbang)
+<p align="center">
+<img src="https://github.com/user-attachments/assets/b9e1fbae-099b-48be-a1cf-4289d7bf1869" width="1000" >
+</p>
