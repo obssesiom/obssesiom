@@ -18,9 +18,9 @@
         </summary>
         <br>
         <font color="#DE9E70">
-          18teen ︵⠀ entj <br>
-          he / him · them - nonbinary <br>
-          aro ︵⠀ace <br>
+         im mostly afk or offtab, so please use w2i to interact w me. i may be slowresp tho , extoverted! i know boundaries js tell me<br>
+          often jokes ok but not sexuals or something sensitive.. ok? i jokes even at serious situation, so pls tell me its a serious situation so i can stop joking (ogmsorry) <br>
+          im a chillperson probably idk. often w my friends to cuddle or talk, its okay to masscuddle!! lol <br>
           i dont allow inspo/copy <br>
           may be rude somtimes
           for mor info <a href="https://rentry.co/mapiccmukbang">rentry</a>
