@@ -14,7 +14,7 @@
 <div align="right">
 <details>
 <summary>dni/iwc</summary>
-problmatic big dni please, furries iwc, misogynsis, ableist, racist, homophobic big dni, sexist, pedophilia,queerphobic, playing victim, genshin fandom dniuf. boboiboy fandom big dni, etc.
+problmatic big dni please, furries iwc, misogynsis, ableist, racist, homophobic big dni, sexist, pedophilia,queerphobic, playing victim, genshin fandom dniuf. boboiboy fandom big dni, bb dni, etc.
 </details>
 </div>
 
