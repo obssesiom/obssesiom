@@ -23,7 +23,7 @@
           im a chillperson probably idk. often w my friends to cuddle or talk, its okay to masscuddle!! lol <br>
           iam abig laufey fan! ifu had the same interestpls int <br>
           i dont allow inspo nor copy, may be rude smtimes
-          for mor info <a href="https://rentry.co/mapiccmukbang">rentry</a>
+          for mor info <a href="https://rentry.co/mapiccmukbang">rentry 1</a> <a href="https://rentry.co/doxtorspiel3">rentry 2</a>
         </font>
       </details>
     </td>
