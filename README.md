@@ -37,8 +37,7 @@
         <br>
         <font color="#C75D4E">
           basic dni criteria ✦ <br>
-          furries iwec !! <br>
-          problematic, bb big dni ✦
+          furries, problematic, bb big dni ✦
         </font>
       </details>
     </td>
