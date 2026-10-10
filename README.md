@@ -19,7 +19,7 @@
         <br>
         <font color="#DE9E70">
          mostly afk/offtab, w2i iwc. expected slowresp, selective extoverted. <br>
-          kindarude  person, sensitive max(TARGETED) ppl dni or iwec. i block freely. psychological reactance. adhd, iwould b thankful if u dont btoughy me to ur dramas. <br>
+          kindarude  person, 4t most of the time im chill. i block freely. psychological reactance. adhd, iwould b thankful if u dont btoughy me to ur dramas. <br>
           <a href="https://rentry.co/mapiccmukbang">rentry 1</a> <a href="https://rentry.co/doxtorspiel3">rentry 2</a>
         </font>
       </details>
