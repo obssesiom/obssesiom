@@ -18,12 +18,9 @@
         </summary>
         <br>
         <font color="#DE9E70">
-         im mostly afk or offtab, so please use w2i to interact w me. i may be slowresp tho , extoverted! i know boundaries js tell me<br>
-          often jokes ok but not sexuals or something sensitive.. ok? i jokes even at serious situation, so pls tell me its a serious situation so i can stop joking (ogmsorry) <br>
-          im a chillperson probably idk. often w my friends to cuddle or talk, its okay to masscuddle!! lol <br>
-          iam abig laufey fan! ifu had the same interestpls int <br>
-          i dont allow inspo nor copy, may be rude smtimes
-          for mor info <a href="https://rentry.co/mapiccmukbang">rentry 1</a> <a href="https://rentry.co/doxtorspiel3">rentry 2</a>
+         mostly afk/offtab, w2i iwc. expected slowresp, selective extoverted. <br>
+          kindarude  person, sensitive max ppl dni or iwec. i block freely. psychological reactance. adhd, iwould b thankful if u dont btoughy me to ur dramas. <br>
+          <a href="https://rentry.co/mapiccmukbang">rentry 1</a> <a href="https://rentry.co/doxtorspiel3">rentry 2</a>
         </font>
       </details>
     </td>
